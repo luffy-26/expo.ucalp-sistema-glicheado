@@ -1,1 +1,0 @@
-# expo.ucalp-sistema-glicheado
